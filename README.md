@@ -1,2 +1,2 @@
 # Nangong23-wiki
-Nangong23 's personal wiki 
+Make a little progress every day!
